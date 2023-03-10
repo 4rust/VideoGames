@@ -25,10 +25,10 @@ https://youtu.be/YwvgUPRAZl4  STOP Wasting Time Playing Video Games NOW
 
 
 <br><br>
+https://youtu.be/63buunYL6Do  Are Video Games A Waste Of Time? Philosophy, Gaming & The Meaning Of Life
 
-
-
-
+<br><br>
+https://youtu.be/UwDsh5trW9s   What Gaming Does to Your Brain
 
 
 
