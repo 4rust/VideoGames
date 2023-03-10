@@ -21,4 +21,15 @@ https://youtu.be/MybqsZUbPpo   Why You Should Quit Playing Video Games
 
 <br><br>
 
+https://youtu.be/YwvgUPRAZl4  STOP Wasting Time Playing Video Games NOW
+
+
+<br><br>
+
+
+
+
+
+
+
 *** And there are plenty, plenty more videos explaining how video games are a waste of time 
