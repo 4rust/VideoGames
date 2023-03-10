@@ -17,3 +17,8 @@ https://youtu.be/868BlSS8Wg0    Why I'll NEVER Play Video Games Again After Lear
 <br><br>
 
 
+https://youtu.be/MybqsZUbPpo   Why You Should Quit Playing Video Games
+
+<br><br>
+
+*** And there are plenty, plenty more videos explaining how video games are a waste of time 
