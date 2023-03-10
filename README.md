@@ -12,7 +12,7 @@ Here is a list of videos that rightly criticize video games.
 
 <br><br>
 /////////////
-here is the best video on this list <br>
+<br>
 https://youtu.be/UwDsh5trW9s   What Gaming Does to Your Brain 
 <br>
 /////////////
