@@ -17,7 +17,7 @@ https://youtu.be/UwDsh5trW9s   What Gaming Does to Your Brain
 <br>
 /////////////
 <br><br>
-https://youtu.be/sZaq5wFSe0M Joe Rogan Was ADDICTED To Video Games
+https://youtu.be/9td5YBpHNp0  Joe Rogan & Bill Burr on Videogames
 <br><br>
 
 
