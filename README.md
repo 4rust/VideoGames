@@ -9,3 +9,11 @@ Video games are a form of ESCAPISM.  ( https://en.wikipedia.org/wiki/Escapism)  
 In contrast, learning and playing chess for example results in a lifetime of learning and playing. It is a skill that can not be stopped by devs  pulling the game or pulling support for the game. 
 <br><br>
 Here is a list of videos that rightly criticize video games. 
+
+<br><br>
+
+https://youtu.be/868BlSS8Wg0    Why I'll NEVER Play Video Games Again After Learning This
+
+<br><br>
+
+
