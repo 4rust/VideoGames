@@ -1,6 +1,9 @@
 # VideoGames
 <br>
-![rus1](https://user-images.githubusercontent.com/126354491/224410342-ae83feb8-c18a-4311-a585-824189f35583.gif)
+
+
+![rus1](https://user-images.githubusercontent.com/126354491/224412048-98461c6c-3fba-4bfd-8a58-942de9c17b3f.gif)
+
 <br>
 
 
