@@ -8,7 +8,7 @@ Video games are a form of ESCAPISM.  ( https://en.wikipedia.org/wiki/Escapism)  
 <br><br>
 In contrast, learning and playing chess for example results in a lifetime of learning and playing. It is a skill that can not be stopped by devs  pulling the game or pulling support for the game. 
 <br><br>
-# Learning to code in Rust should immediately replace video games. Or any other habbits. Rust is the way. Rust is the light. Rust is the future. Rust is the now. 
+# Learning to code in Rust should immediately replace video games. Rust is the way. Rust is the light. Rust is the future. Rust is the now. 
 <br><br>
 
 Here is a list of videos that rightly criticize video games. 
