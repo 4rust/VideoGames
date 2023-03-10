@@ -4,7 +4,7 @@
 <br><br>
 
 
-Video games are a form of ESCAPISM.  ( https://en.wikipedia.org/wiki/Escapism)  They are also highly addicting. They are a waste of your time, yield no lasting results, and when the game dev ends or you are done playing the game- it is all gone. All of it is gone. The hours wasted, the days wasted. The video game is not there. The progress you made is no longer there. It was all for nothing. 
+Video games are a form of ESCAPISM.  ( https://en.wikipedia.org/wiki/Escapism)  They are also highly addicting. They are a waste of your time, yield no lasting results, and when the game dev ends or you are done playing the game- it is all gone. All of it is gone. The hours wasted, the days wasted. The video game is not there. The progress you made is no longer there. It was all for nothing. It was all a lie.
 <br><br>
 In contrast, learning and playing chess for example results in a lifetime of learning and playing. It is a skill that can not be stopped by devs  pulling the game or pulling support for the game. 
 <br><br>
