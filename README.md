@@ -12,7 +12,9 @@ Here is a list of videos that rightly criticize video games.
 
 <br><br>
 
-https://youtu.be/868BlSS8Wg0    Why I'll NEVER Play Video Games Again After Learning This
+https://youtu.be/UwDsh5trW9s   What Gaming Does to Your Brain
+
+
 
 <br><br>
 
@@ -28,8 +30,8 @@ https://youtu.be/YwvgUPRAZl4  STOP Wasting Time Playing Video Games NOW
 https://youtu.be/63buunYL6Do  Are Video Games A Waste Of Time? Philosophy, Gaming & The Meaning Of Life
 
 <br><br>
-https://youtu.be/UwDsh5trW9s   What Gaming Does to Your Brain
+https://youtu.be/868BlSS8Wg0    Why I'll NEVER Play Video Games Again After Learning This
 
-
+<br><br>
 
 *** And there are plenty, plenty more videos explaining how video games are a waste of time 
